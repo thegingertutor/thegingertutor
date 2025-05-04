@@ -1,8 +1,5 @@
-Thank you for using our template!
+The Ginger Tutor 
 
-For more awesome templates please visit https://colorlib.com/wp/templates/
+I am a Scottish educator, experienced in working with children and young people in a wide range of settings - schools, youth clubs, pipe bands and football teams.
 
-Copyright information for the template can't be altered/removed unless you purchase a license.
-More information about the license is available here: https://colorlib.com/wp/licence/
-
-Removing copyright information without the license will result in suspension of your hosting and/or domain name(s).
+I am available as a private tutor for a range of subjects, including English as a Foreign Language - get in touch!
